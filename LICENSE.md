@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with elite Script for minecraft, the #1 Script. Includes no clip and anti-ban for unbeatable performance.
 
 
 
